@@ -18,7 +18,3 @@ La majorité des V.I.E. sont décrochés via le site <a href="http://www.civiweb
 A l&rsquo;UTC, il serait possible d&rsquo;effectuer son stage en même temps que le V.I.E. (demander confirmation à Valérie Texier), une expérience à l&rsquo;étranger est un atout. Répondre dans la langue de l&rsquo;offre (cv / lettre motiv) mais rester sur un cv une page. **Être réactif !** **Mettre en avant son profil international ! (voyages &#8230;)**
 
 Questions: info@civiweb.com
-
-<!-- AddThis Advanced Settings generic via filter on the_content -->
-
-<!-- AddThis Share Buttons generic via filter on the_content -->
